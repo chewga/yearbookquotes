@@ -1,3 +1,5 @@
+# _"Yang penting lulus"_ ~ Saitama
+![](https://github.com/chewga/yearbookquotes/raw/main/media/saitama_passed.jpg)
 [![h](https://i.pinimg.com/originals/89/17/9c/89179ce5f90c56fd53f69c4708f492b0.jpg)](https://i.gifer.com/IlDK.gif)
 [![nyaa~](http://pa1.narvii.com/5841/f2cb9ede1137ccf6ba54cdbd8b4031a31260413e_00.gif)](https://i.gifer.com/IlDK.gif)
 # quotes
