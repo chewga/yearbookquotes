@@ -10,3 +10,6 @@
 ### ["Always stay take me down."](https://www.thetimes.co.uk/imageserver/image/methode%2Ftimes%2Fprod%2Fweb%2Fbin%2F97f760d4-852b-11e8-ad58-ae35970199d3.jpg?crop=4784%2C2691%2C1240%2C857) ~ Rick reversed<br>
 ### [yang ini bukan](https://i.gifer.com/IlDK.gif)<br>
 [.](https://tinyurl.com/y8f4fdjc)
+>
+<img src="https://media.tenor.co/images/a46af63a7f5ec53c82734705132bc319/tenor.gif" align="left" width="150px">
+<img src="https://gifimage.net/wp-content/uploads/2018/04/rikka-takanashi-dance-gif-10.gif" align="right" width="150px">
