@@ -10,6 +10,6 @@
 ### ["Always stay take me down."](https://www.thetimes.co.uk/imageserver/image/methode%2Ftimes%2Fprod%2Fweb%2Fbin%2F97f760d4-852b-11e8-ad58-ae35970199d3.jpg?crop=4784%2C2691%2C1240%2C857) ~ Rick reversed<br>
 ### [yang ini bukan](https://i.gifer.com/IlDK.gif)<br>
 <br>[.](https://tinyurl.com/y8f4fdjc)<br>
-[![](https://www.vliegles.nl/images/thumbnails/product_image-875-1500x844.jpg)](https://www84.zippyshare.com/d/1MKF6WPV/21119/helikopter_kok_di_jalan.mp4)
+[![](https://www.vliegles.nl/images/thumbnails/product_image-875-1500x844.jpg)](https://drive.google.com/uc?export=download&id=18D8xgBXBE9ybmbq9s-dEBX_F-RyH2rtV)
 <img src="https://media.tenor.co/images/a46af63a7f5ec53c82734705132bc319/tenor.gif" align="left" width="150px">
 <img src="https://gifimage.net/wp-content/uploads/2018/04/rikka-takanashi-dance-gif-10.gif" align="right" width="150px">
